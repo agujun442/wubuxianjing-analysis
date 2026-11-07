@@ -48,4 +48,4 @@
 
 ## 完整五步陷阱全套课程获取（付费资源）
 - 百度网盘：https://pan.baidu.com/s/1M9CudeaenWH_RGGLhSLFrA?pwd=9527 （提取码: 9527）
-- 购买全套无删减原版音视频与课件合集: https://www.patreon.com/cw/wbxjqgcks
+- 购买全套无删减原版音视频与课件合集: https://t.me/wbxjgqcks_bot?start=spu3GLXoAxVS4nHCW82QxXdC1iFV4S
